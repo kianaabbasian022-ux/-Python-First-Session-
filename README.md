@@ -27,4 +27,5 @@ In recent decades, the river has experienced serious environmental challenges. C
 2. **Dez River** – An important river in southwestern Iran, known for the Dez Dam and its role in water resources management.
 ![Dez River](https://media.gettyimages.com/id/567925613/photo/the-dez-river-near-dezful-with-zagros-mountains-in-the-background-khuzestan-region-iran.jpg?s=612x612&w=gi&k=20&c=cerNUgDLkIGxb7E5URpQ_cwE-rGnjyiArnJ5Xe_Bjrk=)
 ## Sources
-
+-[https://www.gettyimages.co.uk/photos/dez-river]
+-[https://www.destinationiran.com/si-o-se-pol-bridge-of-isfahan.htm]
