@@ -29,3 +29,5 @@ In recent decades, the river has experienced serious environmental challenges. C
 ## Sources
 -[https://www.gettyimages.co.uk/photos/dez-river]
 -[https://www.destinationiran.com/si-o-se-pol-bridge-of-isfahan.htm]
+
+** words by Jennifer **
