@@ -25,6 +25,6 @@ In recent decades, the river has experienced serious environmental challenges. C
 1. **Karun River** – One of Iran's major rivers, important for hydropower, agriculture, and water supply.
 ![Karun River](https://persiaplanet.com/wp-content/uploads/2021/01/karon-3-dam-06.jpg)
 2. **Dez River** – An important river in southwestern Iran, known for the Dez Dam and its role in water resources management.
-3. !(https://media.gettyimages.com/id/567925613/photo/the-dez-river-near-dezful-with-zagros-mountains-in-the-background-khuzestan-region-iran.jpg?s=612x612&w=gi&k=20&c=cerNUgDLkIGxb7E5URpQ_cwE-rGnjyiArnJ5Xe_Bjrk)
+![Dez River](https://media.gettyimages.com/id/567925613/photo/the-dez-river-near-dezful-with-zagros-mountains-in-the-background-khuzestan-region-iran.jpg?s=612x612&w=gi&k=20&c=cerNUgDLkIGxb7E5URpQ_cwE-rGnjyiArnJ5Xe_Bjrk=)
 ## Sources
 
